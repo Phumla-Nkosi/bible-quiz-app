@@ -1,5 +1,5 @@
 Holy Bible Quiz
-![WhatsApp Image 2024-09-10 at 10 50 40](https://github.com/Phumla-Nkosi/ Holy-bible-quiz/assets/110098940/2fcc195b-1905-44d9-bd65-fa28ab3721b4)
+(https://github.com/Phumla-Nkosi/ Holy-bible-quiz/assets/110098940/2fcc195b-1905-44d9-bd65-fa28ab3721b4)
 
 
 
