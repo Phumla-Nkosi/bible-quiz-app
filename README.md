@@ -1,3 +1,5 @@
+![photo-output(2)](https://github.com/user-attachments/assets/ddfaf97f-e134-432e-aefc-5c08c265920f)
+![IMG_2143](https://github.com/user-attachments/assets/46cd8cdf-19c1-41b2-8b4e-31a49775e9b8)
 Holy Bible Quiz
 (https://github.com/Phumla-Nkosi/ Holy-bible-quiz/assets/110098940/2fcc195b-1905-44d9-bd65-fa28ab3721b4)
 
